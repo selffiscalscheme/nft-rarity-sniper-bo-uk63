@@ -1,4 +1,4 @@
-# 
+# high-frequency nft rarity sniper bot | simulation-mode + wash-trading-detection offers the most advanced nft rarity sniper bot, with simulation-mode and wash-trading-detection.
 
 
 
